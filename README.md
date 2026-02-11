@@ -1,0 +1,1 @@
+# Infografia-Personal-Consumo-El-ctrico-IA-vs-Tradicional-
